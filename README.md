@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Parisamlk
 - 👀 I’m interested in car , photography ,..
 - 🌱 I’m currently learning web design 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m a car lover
 - 📫 How to reach me parisa.mkd@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
