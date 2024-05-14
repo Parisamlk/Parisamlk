@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Parisamlk
-- 👀 I’m interested in car , photography ,..
+- 👀 I’m interested in edit photo , photography ,..
 - 🌱 I’m currently learning web design 
 - 💞️ I’m a car lover
 - 📫 How to reach me parisa.mkd@gmail.com
