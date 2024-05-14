@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Parisamlk
 - 👀 I’m interested in edit photo , photography ,..
-- 🌱 I’m currently learning web design 
+- 🌱 I’m currently learning web design ( HTML5 & CSS3 )
 - 💞️ I’m a car lover
 - 📫 How to reach me parisa.mkd@gmail.com
 - 😄 Pronouns: she/her
